@@ -1,2 +1,2 @@
-# Doikusayang
+# Create by Dikecapin
 Dikecapin
